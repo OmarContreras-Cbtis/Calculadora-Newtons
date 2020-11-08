@@ -1,0 +1,1 @@
+Este trabajo fue elaborado como una tarea, el codigo puede ser usado libremente exceptuando usar como tarea XD ("en serio alguien va a leer esto??")
